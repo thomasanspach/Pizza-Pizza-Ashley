@@ -16,3 +16,8 @@ Pizza-Pizza-Ashley
 
 * @ charlekwallin :octopus: :cat2:
   * does dominoes have octocat?
+  
+* @ aehanes 
+  * cheese pizza :pizza: 
+  * mushroom :mushroom: and cheese 
+ 
